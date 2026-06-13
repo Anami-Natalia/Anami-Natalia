@@ -1,4 +1,4 @@
-## Hi there I'm Natalia 👋
+## Hi there I'm Natalia Anami👋
 
 💻 IT Enthusiast & Web Developer
 
